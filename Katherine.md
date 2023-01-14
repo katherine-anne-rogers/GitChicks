@@ -1,6 +1,6 @@
 # Katherine Rogers 
 
-## Third Year BMOS - Consumer Behaviour
+### Third Year BMOS - Consumer Behaviour
 
 ---
 
