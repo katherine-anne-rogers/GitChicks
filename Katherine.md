@@ -11,7 +11,6 @@
 
 ### Socials:
 
-- [Instagram](https://www.instagram.com/katherine.rogers/
-https://www.instagram.com/katherine.rogers/)
+- [Instagram](https://www.instagram.com/katherine.rogers/)
 - [Facebook](https://www.facebook.com/katherine.rogers.5454)
 - [LinkedIn](www.linkedin.com/in/katherine-anne-rogers)
