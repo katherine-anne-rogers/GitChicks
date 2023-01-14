@@ -1,9 +1,9 @@
-# <sub> :sparkles: </sub> :sparkles: <sup> :sparkles: </sup> Tessa Fortnum <sub> :sparkles: </sub> :sparkles: <sup> :sparkles:
+# <sub> ✨ </sub> ✨ <sup> :✨ </sup> Tessa Fortnum <sub> ✨ </sub> ✨ <sup> ✨
 ### Fourth Year Biology Student at UWO
 
 ---
 
-### :mag: 2 Truths and a Lie :mag:
+### 🔍 2 Truths and a Lie 🔍
 
 1. I take my cat for walks :cat:
 2. I've been to the bottom to the deepest canyon in Ontario :mount_fuji:
@@ -11,13 +11,13 @@
 
 ---
 
-### :mega: Social Media :mega:
+### 📣 Social Media 📣
 
-:camera: [Instagram](https://www.instagram.com/tessakathleen_/)
+📷 [Instagram](https://www.instagram.com/tessakathleen_/)
 
-:bird: [Twitter](https://twitter.com/tessafortn)
+🐦 [Twitter](https://twitter.com/tessafortn)
 
-:briefcase: [LinkedIn](https://www.linkedin.com/in/tfortnum/)
+💼 [LinkedIn](https://www.linkedin.com/in/tfortnum/)
 
 --- 
 
