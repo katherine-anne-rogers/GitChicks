@@ -19,9 +19,9 @@
 
 - I love birds
 
-![Bird](birdbarb3.JPG)
+![Bird flock at Long Point](https://imgur.com/gallery/1InzjGf)
 
 - I saw the Northern Lights this summer
 
-![Northern Lights](NL.jpg)
+![Northern Lights](https://imgur.com/gallery/htGBYGT)
 
