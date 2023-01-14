@@ -1,18 +1,18 @@
 # GitChicks Hacker Olympics
-## We are a team of new coders excited to take on <sup> :sparkles: </sup> :computer: Hacker Olympics :computer: <sup> :sparkles: </sup>
+## We are a team of new coders excited to take on <sup> ✨ </sup> 💻 Hacker Olympics 💻 <sup> ✨ </sup>
 
 ### Katherine Rogers: 
-Western University - 3rd Year Business Student :briefcase:
+Western University - 3rd Year Business Student 💼
 
 [Katherine's md File](Katherine.md)
 
 ### Tessa Fortnum: 
-Western University - 4th Year Biology Student :mushroom:
+Western University - 4th Year Biology Student 🍄
 
 [Tessa's md File](Tessa.md)
 
 ### Shree Dey: 
-Western University - 4th Year Biology Student :seedling:
+Western University - 4th Year Biology Student 🌱
 
 [Shree's md File](shree.md)
 
