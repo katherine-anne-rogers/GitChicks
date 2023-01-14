@@ -1,4 +1,4 @@
-# <sub> ✨ </sub> ✨ <sup> :✨ </sup> Tessa Fortnum <sub> ✨ </sub> ✨ <sup> ✨
+# <sub> ✨ </sub> ✨ <sup> ✨ </sup> Tessa Fortnum <sub> ✨ </sub> ✨ <sup> ✨
 ### Fourth Year Biology Student at UWO
 
 ---
