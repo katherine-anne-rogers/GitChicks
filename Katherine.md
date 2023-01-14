@@ -19,7 +19,7 @@
 
 🌐[Facebook](https://www.facebook.com/katherine.rogers.5454)
 
-💼[LinkedIn](www.linkedin.com/in/katherine-anne-rogers)
+💼[LinkedIn](https://www.linkedin.com/in/katherine-anne-rogers)
 
 ---
 
