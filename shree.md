@@ -1,7 +1,7 @@
 # Hi there! I'm **Shree** :wave:
  
 
-## Currently I'm in 4th year *Biology* with some Comp Sci electives under my belt 
+## Currently I'm in 4<sup>th</sup> year *Biology* with some Comp Sci electives under my belt 
  
 
 ### My two truths and a lie are: 
