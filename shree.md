@@ -6,9 +6,9 @@
 
 ### :mag: My 2 truths and a lie :mag: 
 
-1. I have been a competitive swimmer since high school
-2. I was a child model for 2 years 
-3. I am a non-caffeine person in a family of tea drinkers 
+1. I have been a competitive swimmer since high school :swimmer:
+2. I was a child model for 2 years :baby:
+3. I am a non-caffeine person in a family of tea drinkers :tea:
 
 ---
 
