@@ -15,3 +15,5 @@ Western University - 4th Year Biology Student :mushroom:
 Western University - 4th Year Biology Student :seedling:
 
 [Shree's md File](shree.md)
+
+## [GitHub Pages URL](https://katherine-anne-rogers.github.io/GitChicks/)
