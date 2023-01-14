@@ -1,5 +1,5 @@
 # GitChicks Hacker Olympics
-## We are a team of ~n~ew coders excited to take on <sup> :sparkles: </sup> :computer: Hacker Olympics :computer: <sup> :sparkles: </sup>
+## We are a team of new coders excited to take on <sup> :sparkles: </sup> :computer: Hacker Olympics :computer: <sup> :sparkles: </sup>
 
 ### Katherine Rogers: 
 Western University - 3rd Year Business Student :briefcase:
