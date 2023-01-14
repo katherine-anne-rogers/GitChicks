@@ -21,3 +21,5 @@
 - I am obessed with 🎸 Taylor Swift 🎸
 
 - Check out my [favourite playlist](https://open.spotify.com/playlist/2VUZe0qm0cpT1T3LrWfoFV?si=cb1c481ccbff4302) in my current music rotation 🎼
+
+---
