@@ -17,11 +17,8 @@
 
 ### Other Fun Facts
 
-- I love birds
+- I love [birds](https://imgur.com/gallery/1InzjGf)
 
-[Bird flock at Long Point](https://imgur.com/gallery/1InzjGf)
+- I saw the [Northern Lights](https://imgur.com/gallery/htGBYGT) this summer
 
-- I saw the Northern Lights this summer
-
-[Northern Lights](https://imgur.com/gallery/htGBYGT)
 
