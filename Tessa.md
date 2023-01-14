@@ -1,5 +1,5 @@
 # <sub> :sparkles: </sub> :sparkles: <sup> :sparkles: </sup> Tessa Fortnum <sub> :sparkles: </sub> :sparkles: <sup> :sparkles:
-### *Fourth* Year *Biology* Student at UWO
+### Fourth Year Biology Student at UWO
 
 ---
 
@@ -14,7 +14,9 @@
 ## :mega: **Social Media** :mega:
 
 :camera: [Instagram](https://www.instagram.com/tessakathleen_/)
+
 :bird: [Twitter](https://twitter.com/tessafortn)
+
 :briefcase: [LinkedIn](https://www.linkedin.com/in/tfortnum/)
 
 --- 
