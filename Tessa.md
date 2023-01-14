@@ -15,7 +15,7 @@
 
 :camera: [Instagram](https://www.instagram.com/tessakathleen_/)
 :bird: [Twitter](https://twitter.com/tessafortn)
-:briefcase: [LinkedIn](www.linkedin.com/in/tfortnum)
+:briefcase: [LinkedIn](https://www.linkedin.com/in/tfortnum/)
 
 --- 
 
