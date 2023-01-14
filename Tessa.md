@@ -15,7 +15,7 @@
 
 --- 
 
-### Other Fun Facts
+### Other Fun Facts (*click for photos*)
 
 - I love [birds](https://imgur.com/gallery/1InzjGf)
 
