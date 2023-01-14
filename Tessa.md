@@ -1,9 +1,9 @@
-# Tessa Fortnum
-### Year *4* of *Biology*
+# <sub> :sparkles: </sub> :sparkles: <sup> :sparkles: </sup> Tessa Fortnum <sub> :sparkles: </sub> :sparkles: <sup> :sparkles:
+### *Fourth* Year *Biology* Student at UWO
 
 ---
 
-## **2 truths and a lie**
+## ** :mag: 2 truths and a lie :mag:**
 
 1. I take my cat for walks :cat:
 2. I've been to the bottom to the deepest canyon in Ontario :mount_fuji:
@@ -11,7 +11,7 @@
 
 ---
 
-## **Social Media**
+## ** :mega: Social Media :mega: **
 
 :camera: [Instagram](https://www.instagram.com/tessakathleen_/)
 :bird: [Twitter](https://twitter.com/tessafortn)
